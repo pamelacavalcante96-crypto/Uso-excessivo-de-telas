@@ -7,3 +7,5 @@ https://hospitalsiriolibanes.org.br/blog/vivaoseumelhor/excesso-de-telas-redes-s
 https://internetaddictsanonymous.org/pt/dependencia-de-internet-e-tecnologia/vicio-das-midias-sociais/?
 https://www.einstein.br/n/vida-saudavel/quais-os-riscos-do-uso-frequente-de-telas-por-criancas-e-adolescentes
 Apresentação de slides
+
+
